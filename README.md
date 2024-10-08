@@ -17,7 +17,7 @@ I’m looking to collaborate on exciting software projects! Whether it’s a web
 ## 📫 How to Reach Me
 Feel free to connect with me! You can reach me via:
 - **Email**: maur1cemmwenda@gmail.com
-- **Twitter**: @maur1cemwenda
+- **X**: @maur1cemwenda
 
 ## 😄 Pronouns
 He/Him
