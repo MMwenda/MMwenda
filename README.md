@@ -24,5 +24,5 @@ Feel free to connect with me! You can reach me via:
 He/Him
 
 ## ⚡ Fun Fact
-I can name over 50 different aircraft models and their unique features! From the elegant contours of the Boeing 787 to the cutting-edge efficiency of the F-22 Raptor, I love exploring the fascinating world of aviation ✈️📚
+I can name over 50 different aircraft models and their unique features! I LOVE AVIATION✈️📚
 
