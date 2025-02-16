@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Software Development at GOMYCODE Kenya**
 
-- 👨‍💻 All of my projects are available at [mauricemwenda.codes](mauricemwenda.codes)
+- 👨‍💻 All of my projects are available at [mauricemwenda.codes](mauricemwenda.codes) {UNDER CONSTRUCTION FOR NOW}
 
 - 📝 I sometimes write articles on [https://mauricemwenda.hashnode.dev/](https://mauricemwenda.hashnode.dev/)
 
